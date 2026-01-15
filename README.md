@@ -32,6 +32,4 @@ This section highlights a few easy ways to enjoy the San Fernando Valley, from o
 - **Additional parks and recreation areas** throughout the Valley  
   `https://thetouristchecklist.com/things-to-do-in-the-san-fernando-valley/` [(thetouristchecklist.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fthetouristchecklist.com%2Fthings-to-do-in-the-san-fernando-valley%2F")  
 
----
 
-If you want, I can also create a **Chatsworth‑only mini‑section** with hikes, parks, and local favorites to keep your LA content even more complete.
